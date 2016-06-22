@@ -9,3 +9,6 @@ https://drive.google.com/open?id=0BxWxxrTl5Wf-RW00SXhaaUxBV0E
 
 A video to description about how to coding 
 https://www.youtube.com/watch?v=IXFyHGriE9E
+
+Update 22/06/2016: Video player game. 
+https://www.youtube.com/watch?v=4RJKFqzUwus
